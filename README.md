@@ -1,4 +1,4 @@
-# Having Fun in Water 
+# Having Fun in the Water 
 
 In a regular summer without social restrictions, most people are excited to relax with water whether in a pool or a beach. Besides just relaxing and floating, the only other thing people think of is swimming. It is fun to swim with friends and just rest in the water but what if you wanted more action. That's where my hobby and favorite olympic sport, water polo comes in. 
 
